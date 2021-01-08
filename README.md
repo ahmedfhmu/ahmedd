@@ -1,2 +1,0 @@
-# gogo
-my f or
